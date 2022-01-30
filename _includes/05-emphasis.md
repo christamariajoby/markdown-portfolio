@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**U've Gotten to know me**
+_I'd like to get to know u too_
+###Keep in touch !!!
